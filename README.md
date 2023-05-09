@@ -1,2 +1,0 @@
-# amparo
-amparo22222
